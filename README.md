@@ -1,2 +1,0 @@
-# Tonsorial
-Shop
